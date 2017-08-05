@@ -1,3 +1,13 @@
-South Asia Advisory Board
+## South Asia Advisory Board
 
-US/Europe Advisory Board
+Laurence Liang
+
+## US/Europe Advisory Board
+
+Manan Ahmed (Confirmed)
+Dennis Tenen (Confirmed)
+Tom
+Anne
+Shelly
+
+
